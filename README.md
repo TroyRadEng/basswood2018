@@ -16,3 +16,8 @@
 * amaranth
 * sweet corn and edamame together
 * jerusalem artichokes
+* swiss chard
+
+## fruits
+* strawberries
+* any fruit bushes you can get on freecycle (or the house can pay for)
