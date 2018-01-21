@@ -7,6 +7,7 @@
 * shiso
 * mint
 * catnip
+* stevia
 
 ## veggies
 * collard greens
