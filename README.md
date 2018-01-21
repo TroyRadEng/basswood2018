@@ -15,3 +15,4 @@
 * carolina reaper
 * amaranth
 * sweet corn and edamame together
+* jerusalem artichokes
