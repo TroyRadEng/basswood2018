@@ -8,6 +8,7 @@
 * mint
 * catnip
 * stevia
+* mormon tea
 
 ## veggies
 * collard greens
