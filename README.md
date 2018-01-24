@@ -10,12 +10,15 @@
 * stevia
 * mormon tea
 
+# grain
+* [orange giant amaranth](https://www.rareseeds.com/orange-giant/)
+* [grow in full sun, plant in late april or early may](https://www.saltspringseeds.com/pages/growing-amaranth-and-quinoa-dans-scoop)
+
 ## veggies
 * collard greens
 * potatoes (in a cage)
 * slender eggplant
 * carolina reaper
-* amaranth
 * sweet corn and edamame together
 * jerusalem artichokes
 * swiss chard
