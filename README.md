@@ -20,7 +20,7 @@
 * slender eggplant
 * carolina reaper
 * sweet corn and edamame together
-* jerusalem artichokes
+* jerusalem artichokes (good for front yard?)
 * swiss chard
 
 ## fruits
