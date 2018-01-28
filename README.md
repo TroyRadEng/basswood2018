@@ -9,6 +9,7 @@
 * catnip
 * stevia
 * mormon tea
+* [pineapple weed](https://growitcookitcanit.com/2011/04/12/forage-it-pineapple-weed-tea/)
 
 # grain
 * [orange giant amaranth](https://www.rareseeds.com/orange-giant/)
@@ -26,3 +27,6 @@
 ## fruits
 * strawberries
 * any fruit bushes you can get on freecycle (or the house can pay for)
+
+## front yard
+should probably contain stuff that looks nice.  for instance, mint, sunchoke and pineapple weed
