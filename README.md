@@ -23,10 +23,14 @@
 * sweet corn and edamame together
 * jerusalem artichokes (good for front yard?)
 * swiss chard
+* ramps
 
 ## fruits
 * strawberries
 * any fruit bushes you can get on freecycle (or the house can pay for)
+
+## food tank
+* clover sprouts
 
 ## front yard
 should probably contain stuff that looks nice.  for instance, mint, sunchoke and pineapple weed
