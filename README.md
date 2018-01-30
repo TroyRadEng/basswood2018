@@ -31,6 +31,8 @@
 
 ## food tank
 * clover sprouts
+* [tiniest tomatoes](https://bestjuicytomatoes.com/the-worlds-smallest-tomato/)
+* ground cherry
 
 ## spirulina
 * use your little aquarium
