@@ -32,5 +32,9 @@
 ## food tank
 * clover sprouts
 
+## spirulina
+* use your little aquarium
+* use the grow light and pump left over from food tank 2
+
 ## front yard
 should probably contain stuff that looks nice.  for instance, mint, sunchoke and pineapple weed
