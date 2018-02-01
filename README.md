@@ -1,6 +1,9 @@
 # basswood2018
 2018 garden plan
 
+## places to buy seeds
+* [true love seeds](https://trueloveseeds.com/collections/vegetables)
+
 ## botanicals
 * ginger
 * lavender
