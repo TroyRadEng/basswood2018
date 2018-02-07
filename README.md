@@ -49,3 +49,7 @@
 
 ## front yard
 should probably contain stuff that looks nice.  for instance, mint, sunchoke and pineapple weed
+
+## other ideas
+* [cucumber/bean arch](https://www.instagram.com/p/BYmuwf4nfM7/)
+* [diy guide for arch](https://getbusygardening.com/building-squash-arch/)
