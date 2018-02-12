@@ -38,9 +38,8 @@
 * [tiniest tomatoes](https://bestjuicytomatoes.com/the-worlds-smallest-tomato/)
 * ground cherry
 
-## vermogrow
-* make mealworm tea; [2 tablespoons frass per gallon water?](https://www.youtube.com/watch?v=DhncM4eVgGY)
-* try putting it into an [aerogrow](https://www.amazon.com/AeroGarden-Extra-Gourmet-Herb-Seed/dp/B00L8LTH54/ref=sr_1_5?ie=UTF8&qid=1517302452&sr=8-5&keywords=aerogrow)
+## root buckets
+* with sand
 
 ## spirulina
 * use your little aquarium
